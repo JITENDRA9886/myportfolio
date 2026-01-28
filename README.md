@@ -99,7 +99,7 @@ This project is for portfolio purposes. Feel free to use as inspiration for your
 
 **Jitendra Singh**
 - Email: jitendrasingh8698@gmail.com
-- Position: Area Visual Merchandiser
+- Position: Regional Visual Merchandiser
 - Location: Haryana Region, India
 
 ---
